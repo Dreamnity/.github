@@ -1,1 +1,1 @@
-![image](https://github.com/Dreamnity/.github/assets/42496449/0cf0cb0b-b180-4440-b8ae-c74538ab40a4)
+![image](https://github.com/Dreamnity/.github/assets/42496449/561ac592-20f1-4720-98f2-46ed89ffeae0)
